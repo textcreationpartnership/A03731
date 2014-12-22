@@ -32,7 +32,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE Good Houſ-wiues Treaſurie.Beeing a verye neceſſarie Booke inſtructing to the dreſſing of Meates.
+
 #####Body#####
 
 1. ❧ A Book of Cookrye very neceſſary for all ſuch as delight therin.
